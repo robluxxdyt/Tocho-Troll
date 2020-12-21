@@ -46,7 +46,6 @@ https://www.facebook.com/abdias.bruno
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~
-
-La Copia De Este Vídeo Será Denunciada.
+La Copia De Este VideoJuego Será Denunciada.
 Copyright ©►2019
 τσdσs lσs Dεяεcнσs яεsεяvαdσs.
